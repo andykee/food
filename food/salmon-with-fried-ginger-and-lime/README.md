@@ -11,10 +11,9 @@
 * 1/2C vegetable oil
 
 ## Directions
-Peel and julienne the ginger. Heat the vegetable oil in a frying pan. When hot, add the ginger and fry until dark golden brown. Remove with a slotted spoon; set aside to drain on paper towels. 
+_Makes 4 servings_
 
-Toss lime slices with cucumber slices. Add soy sauce and lime juice. Stir to combine. 
-
-Brush the salmon with a little olive oil and season with salt and pepper. Sear/grill until just cooked through. 
-
-Plate salmon. Top with lime/cucumber garnish and top with a sprinkle of fried ginger.
+1. Peel and julienne the ginger. Heat the vegetable oil in a frying pan. When hot, add the ginger and fry until dark golden brown. Remove with a slotted spoon; set aside to drain on paper towels. 
+2. Toss lime slices with cucumber slices. Add soy sauce and lime juice. Stir to combine. 
+3. Brush the salmon with a little olive oil and season with salt and pepper. Sear/grill until just cooked through. 
+4. Plate salmon. Top with lime/cucumber garnish and top with a sprinkle of fried ginger.

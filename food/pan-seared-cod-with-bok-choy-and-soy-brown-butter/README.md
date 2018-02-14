@@ -14,7 +14,7 @@
 * Salt and freshly ground pepper
 
 ## Method
-*Makes 2 servings* 
+_Makes 2 servings_
 
 1. Preheat oven to 350°F. Heat a large sauté pan over medium heat, add the oil and swirl to evenly coat the bottom of the pan.
 2. Season with salt and pepper and dust the fish with the flour. Once the pan is hot, gently place the fish in the hot pan.
