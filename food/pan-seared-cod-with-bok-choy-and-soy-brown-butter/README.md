@@ -1,4 +1,4 @@
-# Pan-seared cod with bok choy and soy brown butter
+# Pan-seared Cod with Bok Choy and Soy Brown Butter
 ![](pan-seared-cod.jpg)
 
 ## Ingredients
@@ -13,7 +13,7 @@
 * 1/2 cup water
 * Salt and freshly ground pepper
 
-## Method
+## Instructions
 _Makes 2 servings_
 
 1. Preheat oven to 350°F. Heat a large sauté pan over medium heat, add the oil and swirl to evenly coat the bottom of the pan.
