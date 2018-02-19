@@ -1,24 +1,24 @@
 # Greek Lemon-Dill Grilled Chicken Salad
-~[](picture.jpg)
+![](picture.jpg)
 
 ## Ingredients
-6 Tbsp water
-1 1/2 Tbsp olive oil, extra-virgin
-2 1/4 tsp lemon zest
-4 1/2 Tbsp fresh lemon juice
-1 1/2 tsp minced garlic
-1 tsp table salt, or to taste
-3/4 tsp black pepper, freshly ground
-1 pound uncooked boneless skinless chicken breasts, four 4-oz pieces
-2 sprays cooking spray
-4 cups, shredded romaine lettuce, thickly shredded
-1 cup canned drained chickpeas, rinsed and drained
-1/2 cup roasted red peppers (packed in water), diced
-1 cup English cucumber, sliced
-8 medium olive, Kalamata, sliced
-1/4 cup crumbled feta cheese
-4 1/2 Tbsp dill, fresh, chopped
-1/2 medium lemon, cut into wedges for garnish
+* 6 Tbsp water
+* 1 1/2 Tbsp olive oil, extra-virgin
+* 2 1/4 tsp lemon zest
+* 4 1/2 Tbsp fresh lemon juice
+* 1 1/2 tsp minced garlic
+* 1 tsp table salt, or to taste
+* 3/4 tsp black pepper, freshly ground
+* 1 pound uncooked boneless skinless chicken breasts, four 4-oz pieces
+* 2 sprays cooking spray
+* 4 cups, shredded romaine lettuce, thickly shredded
+* 1 cup canned drained chickpeas, rinsed and drained
+* 1/2 cup roasted red peppers (packed in water), diced
+* 1 cup English cucumber, sliced
+* 8 medium olive, Kalamata, sliced
+* 1/4 cup crumbled feta cheese
+* 4 1/2 Tbsp dill, fresh, chopped
+* 1/2 medium lemon, cut into wedges for garnish
 
 # Instructions
 In a small bowl, combine water, oil, lemon zest and juice, garlic, salt and pepper; remove 1/4 cup of dressing and place in a large zip-close plastic bag (or glass bowl).
