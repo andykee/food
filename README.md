@@ -1,10 +1,8 @@
 # F O O D
 
-## Vegetarian
-* [Roasted Butternut Squash with Grilled Halloumi and Dukkah on Massaged Kale](food/roasted-butternut-squash-with-grilled-halloumi-and-dukkah-on-massaged-kale)
-
 ## Salad
 * [Greek Lemon-Dill Grilled Chicken Salad](food/greek-lemon-dill-grilled-chicken-salad)
+* [Roasted Butternut Squash with Grilled Halloumi and Dukkah on Massaged Kale](food/roasted-butternut-squash-with-grilled-halloumi-and-dukkah-on-massaged-kale)
 * Taco Salad
 
 ## Grains & Beans
