@@ -3,7 +3,8 @@
 ## Salad
 * [Greek Lemon-Dill Grilled Chicken Salad](food/greek-lemon-dill-grilled-chicken-salad)
 * [Roasted Butternut Squash with Grilled Halloumi and Dukkah on Massaged Kale](food/roasted-butternut-squash-with-grilled-halloumi-and-dukkah-on-massaged-kale)
-* Taco Salad
+* [Taco Salad](food/taco-salad)
+* [Steak and Corn Salad with Salsa Verde](food/steak-and-corn-salad-with-salsa-verde)
 
 ## Grains & Beans
 * Sorrel Pesto Rice Bowl
