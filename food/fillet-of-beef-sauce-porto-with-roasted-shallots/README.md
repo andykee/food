@@ -24,4 +24,4 @@ While the shallots roast, heat large saute pan over medium heat. Melt 1 tbsp but
 Increase the oven temp to 375&deg;F. Season the meat with salt and pepper. Heat the oil in a large saute pan over high heat. Add 1 tbsp of butter, let it foam, and allow it to subside. Sear the meat on all sides, using the tongs to turn the fillets. Make sure the sides are seared too. Transfer the meat to a roasting pan and place in the oven. Roast unti the meat is 135&deg;F, about 15 minutes for medium rare.
 
 ## Serve
-Remove the fillets from the oven, rest them a few moments, and arrange on a plate. Artfullt estle 3 of the cooked whole shallots next to each fillet and spoon over the sauce. Good with mashed potatoes or a simple salad.
+Remove the fillets from the oven, rest them a few moments, and arrange on a plate. Artfully nestle 3 of the cooked whole shallots next to each fillet and spoon over the sauce. Good with mashed potatoes or a simple salad.
